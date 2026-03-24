@@ -1,0 +1,1 @@
+Pretty much this is me automatically asking David (my boss) what food we are getting for the speaker series' and then if he tells me it's pizza... well I've had my fair share already. Thanks though David :D
